@@ -1,4 +1,3 @@
-# Privacy-Policies
-Repo designed to hold application privacy policies.
+# Privacy-Policy
 
 This application does not collect user data or personal information.
