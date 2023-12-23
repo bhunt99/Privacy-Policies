@@ -1,3 +1,3 @@
 # Privacy-Policy
-
-This application does not collect user data or personal information.
+New Privacy Policy:
+https://www.freeprivacypolicy.com/live/59d0b754-ba13-4a33-bb70-48601fbb91ba)https://www.freeprivacypolicy.com/live/59d0b754-ba13-4a33-bb70-48601fbb91ba
